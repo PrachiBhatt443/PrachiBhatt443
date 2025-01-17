@@ -20,7 +20,9 @@
 
 - 📫 How to reach me **bprachi443@gmail.com**
 
-- 📄 Know about my experiences [Download My Resume](https://drive.google.com/uc?export=download&id=1y4mALEFC4k8KXesYAR-JYGCuQqTyuGp-)
+- 📄 Know about my experiences [Download My Resume](https://drive.google.com/uc?export=download&id=15YGCcHfgyTpm17GGMNjMx6EWqiNLd0il)
+- 
+
 
 - ⚡ Fun fact: **I'm an amateur photographer and love capturing candid moments of others.**
 
